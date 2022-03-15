@@ -1,1 +1,0 @@
-# Studi_Independent
